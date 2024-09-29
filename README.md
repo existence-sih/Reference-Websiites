@@ -1,0 +1,11 @@
+# Reference-Websiites
+[Link 1](https://www.shrm.org/in/topics-tools/tools/policies#sortCriteria=%40datesortfield%20descending&f-contenttypefiltertag=Policy)
+[Link 2](https://razorpay.com/payroll/learn/hr-policies/)
+[Link 3](https://www.iima.ac.in/sites/default/files/2023-01/HR%20Policy%20Manual%202023%20%288%29.pdf)
+[Link 4](https://www.rapid.one/blog/hr-policies-in-india)
+[Link 5](https://www.cesvi.eu/wp-content/uploads/2019/08/Human-Resources-Policy.pdf)
+[Link 6](https://www.sircapaints.com/wp-content/uploads/2020/08/HR-Policies-Manuals.pdf)
+[Link 7](https://www.timelabs.in/hr-policies)
+[link 8](https://www.iiaonline.in/doc_files/IIA%20HR%20Policy.pdf)
+[Link 9](https://www.bennett.edu.in/wp-content/uploads/2024/06/BU_HR_Manual_.pdf)
+[Link 10](https://sist.sathyabama.ac.in/sist_naac/documents/1.3.4/2022-mba-mba-batchno-152.pdf)
